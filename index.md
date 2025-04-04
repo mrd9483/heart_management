@@ -448,5 +448,32 @@ Keep a small notebook by your bed. This is just for you - no need to share it wi
 - Don't stop medications without talking to your doctor first
 - Set up a system for timely prescription refills
 
+## The DASH Diet
+
+The DASH (Dietary Approaches to Stop Hypertension) diet is a flexible, balanced eating plan designed to help lower blood pressure and improve overall health.
+
+### Core Principles
+- Emphasizes fruits, vegetables, whole grains, and lean proteins
+- Limits foods high in saturated fats and added sugars
+- Restricts sodium (salt) intake to around 2,300 mg per day (lower targets of 1,500 mg exist for some people)
+- Focuses on foods rich in nutrients that help lower blood pressure like potassium, calcium, and magnesium
+
+### What to Eat
+- Vegetables: 4-5 servings daily
+- Fruits: 4-5 servings daily
+- Whole grains: 6-8 servings daily
+- Lean meats, poultry, and fish: 6 or fewer servings daily
+- Low-fat or fat-free dairy: 2-3 servings daily
+- Nuts, seeds, and legumes: 4-5 servings weekly
+- Fats and oils: 2-3 servings daily
+- Limited sweets: 5 or fewer servings weekly
+
+### Health Benefits
+- Lowers blood pressure
+- Reduces LDL ("bad") cholesterol levels
+- May reduce risk of heart disease, stroke, and certain cancers
+- Can aid in weight management
+- May help prevent or manage type 2 diabetes
+
 ## A Final Note
 This guide is meant to help you on your heart health journey, but should always be used alongside your healthcare team's advice. Please review all suggestions with your medical providers before making changes to your care plan.
