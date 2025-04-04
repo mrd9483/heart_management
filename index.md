@@ -1,259 +1,259 @@
-# Heart Health Wiki: Comprehensive Management Plan
+# Heart Health Wiki: A Friendly Guide to Taking Care of Your Heart
 
-## Feeling Hopeless?
+## Having a Tough Day?
 
-### When Feeling Hopeless Tonight
+### When Things Feel Overwhelming
 
-When you're feeling sad and hopeless, especially in the evening when things can feel darker, one small but meaningful action can help:
+We all have moments when hope seems distant, especially in the evening when everything can feel heavier. Here's a simple practice that might help:
 
 #### Three Okay Things
 
-**Tonight, before sleep, write down three things that went okay today.**
+**Tonight, before you drift off to sleep, jot down three things that went okay today.**
 
-These don't need to be amazing or extraordinary things. Just okay, neutral, or slightly positive moments from your day. For example:
+These don't need to be amazing achievements - just small, ordinary moments that weren't bad:
 
-- "I drank a glass of water"
-- "I got out of bed today"
-- "I took my medication"
-- "I petted my cat/dog"
-- "I reached out for help about my condition"
-- "I felt the sun on my face for a moment"
-- "I brushed my teeth"
+- "I had a cup of tea this morning"
+- "I managed to get dressed today"
+- "I remembered to take my medicine"
+- "My pet kept me company for a while"
+- "I reached out for help"
+- "I felt a moment of sunshine on my face"
+- "I brushed my teeth before bed"
 
-### Why This Helps
+### Why This Works
 
-This simple 2-3 minute practice:
-- Interrupts the cycle of negative thoughts
-- Gently redirects your mind to notice neutral/positive events
-- Acknowledges that even in difficult days, okay moments still exist
-- Requires minimal energy when you're feeling depleted
-- Creates a small bridge to tomorrow
+This quick 2-3 minute practice can:
+- Break the cycle of spiraling thoughts
+- Gently shift your attention to neutral/positive moments
+- Remind you that even difficult days have okay parts
+- Require very little energy when you're feeling drained
+- Provide a small sense of continuity to tomorrow
 
-Keep a notebook and pen by your bed. You don't need to share this with anyone - it's just for you.
+Keep a small notebook by your bed. This is just for you - no need to share it with anyone else.
 
-*This isn't about "thinking positive" - it's about acknowledging the full reality of your day, which includes both the difficult parts and the okay parts.*
+*This isn't about forced positivity - it's simply acknowledging the complete picture of your day, which includes both the struggles and the okay moments.*
 
 
-## Phase-Based Implementation Plan
+## Your Journey: Step by Step
 
-### Week 1-2: Foundation Building
-- **Start tracking basics**: 
-  - Daily weight (morning after using bathroom, before eating)
-  - Daily fluid intake (target: 64oz)
-- **Connect with support**: 
-  - Schedule appointment with therapist specializing in chronic health conditions
-  - Research heart failure support groups online or through hospital
+### Weeks 1-2: Getting Started
+- **Begin tracking the basics**: 
+  - Morning weight (after bathroom, before eating)
+  - Daily fluid intake (aim for 64oz)
+- **Find your support team**: 
+  - Book an appointment with a therapist who understands chronic health conditions
+  - Look into heart support communities online or through your hospital
 
-### Week 3-4: Gradual Health Monitoring
-- **Add tracking**: Begin monitoring daily sodium intake (aim for <2000mg)
-- **Begin gentle movement**: 
-  - 10-minute walks, 3 times per week
-  - Focus on breathing and enjoyment, not distance
+### Weeks 3-4: Adding New Habits
+- **Track one more thing**: Start keeping an eye on daily sodium intake (try for <2000mg)
+- **Move a little**: 
+  - Take 10-minute walks, 3 times a week
+  - Focus on how it feels, not how far you go
 
-### Month 2: Building Consistency
-- **Nutritional planning**: 
-  - First visit to Whole Foods with specific shopping list (see Nutrition section)
-  - Learn 2-3 simple heart-healthy recipes (see Recipe section)
-- **Movement progression**: 
-  - Increase walks to 15 minutes, 4 times per week
-  - Begin light resistance training (see Weight Training section)
+### Month 2: Building Your Routine
+- **Food that loves you back**: 
+  - Plan your first heart-friendly shopping trip (check the Nutrition section)
+  - Learn 2-3 simple recipes that nourish your heart (see Recipe section)
+- **Moving forward**: 
+  - Stretch your walks to 15 minutes, 4 times a week
+  - Try some gentle strength exercises (see Weight Training section)
 
-### Month 3: Community Connection
-- **Social support**: 
-  - Join local walking group or American Heart Association event
-  - Arrange gym visit with a friend once weekly
-- **Long-term planning**:
-  - Begin planning Florida trip to see family
+### Month 3: Connecting with Others
+- **Finding your people**: 
+  - Join a local walking group or American Heart Association event
+  - Invite a friend to join you at the gym once a week
+- **Looking ahead**:
+  - Start planning that Florida trip to visit your family
 
-## Daily Schedule Template
+## Your Daily Rhythm
 
 **Morning:**
 - Weigh yourself (same time, same clothes)
-- Track first fluid intake
-- Brief 5-minute seated meditation/breathing exercise
+- Note your first drinks of the day
+- Take 5 minutes for calm breathing
 
 **Afternoon:**
-- Walking session (start with 10 minutes)
-- Track meals and sodium intake
+- Go for your walk (start with just 10 minutes)
+- Keep track of what you eat and sodium levels
 
 **Evening:**
-- Complete fluid intake tracking
-- Brief reflection on what went well today
-- Prepare for next day (set out workout clothes, prepare lunch)
+- Finish tracking your fluid intake
+- Take a moment to notice what went well today
+- Set yourself up for tomorrow (lay out comfy clothes, prep an easy lunch)
 
-## Focus Areas (Detailed)
+## Taking Care of Your Whole Self
 
-### 1. Emotional Health
+### 1. Emotional Wellbeing
 
-**Professional Support:**
-- **Therapist selection**: Look for therapists with experience in chronic illness and health anxiety. Request referrals from the heart failure clinic for specialists familiar with cardiac patients.
-- **Therapy approach**: Cognitive Behavioral Therapy (CBT) is effective for managing health-related anxiety and depression.
-- **Frequency**: Begin with weekly sessions, adjusting as needed based on progress.
+**Finding Professional Support:**
+- **Choosing a therapist**: Look for someone who understands chronic health conditions. Your heart clinic can often recommend someone who works with cardiac patients.
+- **Therapy approach**: Cognitive Behavioral Therapy (CBT) works well for managing health worries and low mood.
+- **How often**: Weekly sessions to start, adjusting as you go.
 
-**Daily Emotional Management:**
-- **Journaling**: 5-10 minutes daily to express fears and identify thought patterns. Focus on both challenges and positive moments.
-- **Breathing exercises**: 4-7-8 breathing (inhale for 4, hold for 7, exhale for 8) twice daily to reduce stress and improve oxygen flow.
-- **Gratitude practice**: Document three positive things each evening, even on difficult days, to shift focus from illness to positive aspects of life.
+**Daily Emotional Care:**
+- **Writing it out**: Spend 5-10 minutes writing about your feelings and noticing thought patterns. Include both challenges and good moments.
+- **Breathing practice**: Try 4-7-8 breathing (in for 4, hold for 7, out for 8) twice daily to ease stress and improve oxygen flow.
+- **Noticing the good**: Each evening, note three positive things, even tiny ones, to help shift focus from illness to the fuller picture of your life.
 
-**Milestone Setting:**
-- Celebrate small wins like "completed all tracking today" or "took a 10-minute walk"
-- Create a visible progress tracker (calendar with stickers, app, or simple chart)
-- Set realistic micro-goals that build confidence and motivation
+**Celebrating Small Wins:**
+- Acknowledge accomplishments like "tracked everything today" or "took a short walk"
+- Create a visual way to see progress (calendar with stickers, app, or simple chart)
+- Set tiny, doable goals that build your confidence
 
 ### 2. Simple Tracking
 
-**Weight Monitoring:**
-- **Technique**: Same time each morning, after using bathroom, before eating/drinking
-- **Recording**: Simple spreadsheet or dedicated app like MyFitnessPal or Cronometer
-- **Perspective**: Normal daily fluctuations up to 2lbs; focus on weekly trends instead of daily numbers
-- **Red flags**: Sudden gain of 2-3lbs in 24 hours may indicate fluid retention - contact doctor
+**Keeping an Eye on Weight:**
+- **How to do it**: Same time each morning, after bathroom, before eating
+- **Where to record it**: Simple spreadsheet or an app like MyFitnessPat or Cronometer
+- **What to remember**: Normal daily ups and downs of up to 2lbs can happen; weekly patterns matter more than daily numbers
+- **When to call**: Sudden gain of 2-3lbs in 24 hours might mean fluid buildup - reach out to your doctor
 
 **Fluid Intake:**
-- **Measurement**: Use a 32oz water bottle with measurement markings
-- **Distribution**: Set phone reminders to drink throughout the day rather than all at once
-- **Varieties**: Include herbal teas, clear broths, and water-rich foods in tracking
-- **Restriction awareness**: If fluid restriction has been prescribed, develop a specific plan for fluid distribution throughout the day
+- **Making it easy**: Use a 32oz water bottle with measurement lines
+- **Spreading it out**: Set friendly reminders to sip throughout the day
+- **More than water**: Herbal teas, clear broths, and water-rich foods count too
+- **If you have limits**: If your doctor has restricted fluids, plan how to spread them throughout your day
 
 **Sodium Tracking:**
-- **Education**: Review food labels focusing on sodium per serving
-- **Common culprits**: Processed foods, canned soups, deli meats, restaurant meals, condiments
-- **Gradual reduction**: Focus on one meal category at a time (e.g., breakfast first)
-- **Flavor alternatives**: Create a collection of salt-free seasonings and herb blends
+- **Learning labels**: Get comfortable reading food labels, focusing on sodium per serving
+- **Common sources**: Processed foods, canned soups, deli meats, restaurant meals, condiments
+- **Taking it slow**: Focus on improving one meal at a time (breakfast first, then lunch)
+- **Tasty alternatives**: Collect salt-free seasonings and herb blends you enjoy
 
-**Tracking Implementation Tools:**
-- **Digital options**: Health apps like MyFitnessPal, Cronometer, or Heart Failure Health Storylines
-- **Paper options**: Daily log sheets in a binder or journal with pre-formatted sections
-- **Hybrid approach**: Paper for daily quick recording, digital for weekly review and trend analysis
-- **Visual cues**: Place tracking tools next to toothbrush, coffee maker, or other daily-use items
+**Tools to Make Tracking Easier:**
+- **Digital friends**: Health apps like MyFitnessPal, Cronometer, or Heart Failure Health Storylines
+- **Paper options**: Daily log sheets in a binder or journal with sections ready to go
+- **Mix and match**: Paper for quick daily notes, digital for weekly review
+- **Visual reminders**: Keep tracking tools next to toothbrush or coffee maker
 
-### 3. Gentle Movement
+### 3. Moving Your Body Gently
 
-**Starting Point Assessment:**
-- Begin with current capacity without fatigue
-- Focus on consistent, manageable activity rather than intensity
-- Track baseline metrics: how far/long before fatigue, recovery time, etc.
+**Starting Where You Are:**
+- Begin with what feels comfortable without getting too tired
+- Focus on showing up consistently rather than pushing hard
+- Notice your starting point: how far/long before getting tired, recovery time
 
-**Walking Program:**
-- **Week 1-2**: 5-10 minute walks on flat terrain, 3x weekly
-- **Week 3-4**: Extend to 15 minutes, maintain 3x weekly
+**Walking Your Way Forward:**
+- **Weeks 1-2**: 5-10 minute walks on flat ground, 3x weekly
+- **Weeks 3-4**: Stretch to 15 minutes, still 3x weekly
 - **Month 2**: Increase to 20 minutes, 4x weekly
 - **Month 3**: Work toward 30 minutes, 4-5x weekly
-- Always walk with cell phone, medical ID, and someone informed of route
+- Always bring your phone, medical ID, and let someone know your route
 
-**Monitoring During Exercise:**
-- **Heart rate awareness**: Learn to check pulse or use basic heart rate monitor
-- **Exertion level**: Use "talk test" (should be able to carry on conversation)
-- **Recovery monitoring**: Note how long it takes to return to resting heart rate
-- **Warning signs**: Stop if experiencing chest pain, unusual shortness of breath, dizziness, or irregular heartbeat
+**Listening to Your Body During Movement:**
+- **Heart awareness**: Learn to check your pulse or use a simple heart rate monitor
+- **Effort level**: Use the "talk test" (you should be able to chat while moving)
+- **Recovery watching**: Notice how long it takes to feel normal again after activity
+- **Warning signs**: Stop if you feel chest pain, unusual shortness of breath, dizziness, or irregular heartbeat
 
-**Exercise Environment:**
-- Choose temperature-controlled settings when possible
-- Avoid extreme temperatures and humidity
+**Where to Move:**
+- Choose comfortable temperature settings when possible
+- Avoid extreme heat, cold, or humidity
 - Consider indoor options (mall walking, treadmill) during weather extremes
-- Hydrate before, during, and after exercise
+- Drink water before, during, and after moving
 
-### 4. Weight Training for Heart Health
+### 4. Gentle Strength Building
 
-**Medical Prerequisites:**
-- Obtain specific approval from cardiologist for weight training program
-- Discuss any exercise restrictions or modifications needed
-- Establish safe heart rate ranges for exercise
+**Before You Begin:**
+- Get specific approval from your heart doctor
+- Discuss any exercises you should avoid or modify
+- Understand your safe heart rate zones
 
-**General Guidelines:**
-- Start with lighter weights (25-50% of previous capacity)
-- Focus on higher repetitions (12-15) rather than heavy weight
-- Emphasize proper breathing technique - avoid holding breath during exertion
-- Allow longer rest periods between sets (90-120 seconds) to allow heart rate recovery
+**General Approach:**
+- Start with lighter weights (25-50% of what you used to use)
+- Focus on more repetitions (12-15) rather than heavy weight
+- Pay attention to breathing - avoid holding your breath
+- Take longer rest breaks between sets (90-120 seconds) to let your heart recover
 
-**Weekly Structure:**
+**Weekly Plan:**
 - 2-3 non-consecutive days per week
-- 20-30 minutes initially, gradually increasing to 45 minutes
-- Consider split routine (upper body one day, lower body another)
+- 20-30 minutes to start, gradually working up to 45 minutes
+- Consider splitting exercises (upper body one day, lower body another)
 
-**Recommended Exercises:**
-- **Upper Body Focus:**
-  - Seated chest press (safer than bench press)
+**Exercises That Work Well:**
+- **For Upper Body:**
+  - Seated chest press (gentler than bench press)
   - Seated row
   - Shoulder press (light weight)
   - Bicep curls
   - Supported tricep extensions
 
-- **Lower Body Focus:**
-  - Leg press (safer than traditional squats initially)
+- **For Lower Body:**
+  - Leg press (safer than traditional squats at first)
   - Seated leg extension
   - Seated leg curl
   - Calf raises
-  - Seated hip abduction/adduction
+  - Seated hip exercises
 
-**Progression Plan:**
-- **Weeks 1-2**: Very light weights, focus on form and breathing, 1 set of 12-15 reps
-- **Weeks 3-6**: Slight weight increase if tolerated well, 2 sets of 12-15 reps
-- **Months 2-3**: Gradual weight increases as tolerated, maintaining higher rep ranges
+**Taking It Step by Step:**
+- **Weeks 1-2**: Very light weights, focus on good form and breathing, 1 set of 12-15 reps
+- **Weeks 3-6**: Small weight increase if feeling good, 2 sets of 12-15 reps
+- **Months 2-3**: Gradual weight increases as your body adapts, keeping repetitions high
 
-**Weight Training Tracking:**
-- Record exercises, weights, reps, and sets
-- Note pre- and post-exercise heart rate
-- Track time for heart rate to return to baseline
-- Use perceived exertion scale (1-10)
+**Keeping Track:**
+- Note which exercises, weights, reps, and sets you do
+- Check heart rate before and after exercise
+- Track how long it takes your heart rate to return to normal
+- Rate how hard each session felt (1-10 scale)
 
-**Safety Measures:**
-- Always have a workout partner initially
-- Keep phone accessible
-- Start with machine exercises rather than free weights
-- Learn proper form before increasing weight
+**Staying Safe:**
+- Have a workout buddy at first
+- Keep your phone handy
+- Start with machines rather than free weights
+- Learn proper form before adding weight
 
-### 5. Social Connection
+### 5. Connecting with Others
 
-**Heart-Specific Community:**
-- **Support Groups**: Both in-person and online options through hospitals or American Heart Association
-- **Peer Programs**: Connect with others managing similar conditions
-- **Educational Workshops**: Join classes focused on heart health management
+**Heart-Centered Community:**
+- **Support Groups**: Both in-person and online through hospitals or American Heart Association
+- **Buddy Programs**: Connect with others managing similar health journeys
+- **Learning Together**: Join classes about heart health
 
-**Existing Relationship Maintenance:**
-- Develop a simple explanation of condition for friends/family
-- Identify modified activities to maintain social connections with less exertion
-- Be specific about what kind of support would be helpful
+**Nurturing Existing Relationships:**
+- Have a simple explanation of your condition ready for friends/family
+- Find new ways to enjoy time together that work with your energy levels
+- Be specific about what kind of support helps you most
 
-**Meaningful Engagement Opportunities:**
-- **Volunteer**: American Heart Association phone support or virtual mentoring
-- **Skill Sharing**: Using experience/knowledge to help others
-- **Creative Outlets**: Heart-healthy cooking clubs, crafting groups, book clubs
+**Finding Meaningful Connections:**
+- **Give Back**: American Heart Association phone support or virtual mentoring
+- **Share Your Skills**: Use your experience to help others
+- **Creative Connections**: Heart-healthy cooking groups, crafting circles, book clubs
 
-**Activity Planning:**
+**Planning Activities:**
 - Schedule regular walking dates with friends
-- Find a consistent gym partner for weight training sessions
-- Plan the Florida family trip with specific heart-health accommodations
+- Find a consistent gym buddy for strength training
+- Plan your Florida family trip with heart-health in mind
 
-### 6. Nutrition
+### 6. Food That Loves Your Heart
 
-**DASH Diet Principles:**
-- Emphasize fruits, vegetables, whole grains, lean proteins
-- Limit sodium, saturated fats, and added sugars
-- Focus on potassium-rich foods (bananas, potatoes, leafy greens)
-- Include heart-healthy fats (olive oil, avocados, nuts)
+**DASH Diet Basics:**
+- Enjoy plenty of fruits, vegetables, whole grains, lean proteins
+- Go easy on sodium, saturated fats, and added sugars
+- Include potassium-rich foods (bananas, potatoes, leafy greens)
+- Make room for heart-healthy fats (olive oil, avocados, nuts)
 
-**Meal Planning Strategy:**
-- Develop 5-7 go-to breakfasts, lunches, and dinners
-- Weekend preparation of components for easier weekday meals
-- Establish heart-healthy frozen meals or pantry options for low-energy days
+**Making Meal Planning Easier:**
+- Develop 5-7 go-to options for breakfast, lunch, and dinner
+- Prep components on weekends for easier weekday meals
+- Keep heart-healthy frozen meals or pantry options for low-energy days
 
-**Sodium Reduction Techniques:**
-- Read labels for hidden sodium content
-- Cook from scratch to control sodium levels
-- Use herbs, spices, citrus, and vinegars for flavor
-- Rinse canned vegetables and beans to reduce sodium
+**Lowering Sodium Without Losing Flavor:**
+- Get to know food labels and hidden sodium sources
+- Cook from scratch when you can to control sodium
+- Experiment with herbs, spices, citrus, and vinegars for flavor
+- Rinse canned vegetables and beans to wash away some sodium
 
-**Heart-Healthy Shopping List:**
+**Heart-Friendly Shopping List:**
 - Fresh fruits and vegetables
 - Whole grains (brown rice, quinoa, oats)
-- Lean proteins (chicken breast, fish, legumes)
+- Lean proteins (chicken breast, fish, beans)
 - Low-sodium canned goods
 - Healthy fats (olive oil, avocados)
-- Herbs and spices for flavor without sodium
+- Herbs and spices for flavor without salt
 
-## Heart-Healthy Recipes
+## Heart-Happy Recipes
 
-### Breakfast Options
+### Morning Meals
 
 **Overnight Oats with Berries**
 - ½ cup rolled oats
@@ -263,9 +263,9 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - 1 teaspoon honey (optional)
 - Dash of cinnamon
 
-*Instructions:* Combine oats, almond milk, and chia seeds in a jar. Refrigerate overnight. In the morning, top with berries, honey if desired, and cinnamon.
+*How to make it:* Mix oats, almond milk, and chia seeds in a jar. Refrigerate overnight. In the morning, top with berries, honey if you'd like, and cinnamon.
 
-*Heart benefits:* High in soluble fiber, which helps lower cholesterol. Berries provide antioxidants that support heart health.
+*Heart goodness:* High in soluble fiber to help lower cholesterol. Berries add antioxidants that support heart health.
 
 **Veggie Egg White Scramble**
 - 3 egg whites
@@ -274,11 +274,11 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - ¼ avocado, sliced
 - Black pepper to taste
 
-*Instructions:* Heat oil in pan. Add vegetables and cook until softened. Pour in egg whites and scramble until cooked through. Top with avocado slices.
+*How to make it:* Heat oil in pan. Add vegetables and cook until soft. Pour in egg whites and scramble until cooked. Top with avocado slices.
 
-*Heart benefits:* Lean protein without the cholesterol of whole eggs. Vegetables provide potassium, and avocado contains heart-healthy monounsaturated fats.
+*Heart goodness:* Lean protein without the cholesterol of whole eggs. Vegetables provide potassium, and avocado offers heart-healthy fats.
 
-### Lunch Options
+### Midday Meals
 
 **Mediterranean Quinoa Bowl**
 - ½ cup cooked quinoa
@@ -291,11 +291,11 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - Fresh herbs (parsley, mint)
 - Black pepper to taste
 
-*Instructions:* Combine all ingredients in a bowl. Can be made ahead and refrigerated.
+*How to make it:* Mix all ingredients in a bowl. Can be made ahead and kept in the fridge.
 
-*Heart benefits:* Quinoa provides complete protein and fiber. Chickpeas contribute additional fiber and protein. Olive oil delivers monounsaturated fats.
+*Heart goodness:* Quinoa gives you complete protein and fiber. Chickpeas add more fiber and protein. Olive oil provides heart-healthy fats.
 
-**Hearty Vegetable Soup**
+**Comforting Vegetable Soup**
 - 4 cups low-sodium vegetable broth
 - 1 can diced tomatoes (no salt added)
 - 1 cup carrots, chopped
@@ -306,11 +306,11 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - 1 tablespoon Italian herbs
 - Black pepper to taste
 
-*Instructions:* Combine all ingredients in a pot. Bring to boil, then simmer until barley and vegetables are tender (about 25 minutes). Makes multiple servings.
+*How to make it:* Combine everything in a pot. Bring to boil, then simmer until barley and vegetables are tender (about 25 minutes). Makes several servings.
 
-*Heart benefits:* Very low in sodium when using no-salt-added ingredients. High in fiber and potassium.
+*Heart goodness:* Very low in sodium when using no-salt-added ingredients. High in fiber and potassium.
 
-### Dinner Options
+### Evening Meals
 
 **Baked Fish Packets**
 - 5 oz white fish fillet (cod, tilapia)
@@ -321,9 +321,9 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - 1 teaspoon dried herbs (dill, parsley)
 - Black pepper to taste
 
-*Instructions:* Place fish and vegetables on a piece of parchment paper. Drizzle with olive oil and lemon juice. Sprinkle with herbs and zest. Fold parchment into packet. Bake at 375°F for 15-18 minutes.
+*How to make it:* Place fish and vegetables on parchment paper. Drizzle with olive oil and lemon juice. Sprinkle with herbs and zest. Fold parchment into a packet. Bake at 375°F for 15-18 minutes.
 
-*Heart benefits:* Omega-3 fatty acids from fish. Low in sodium and calories.
+*Heart goodness:* Omega-3 fatty acids from fish. Low in sodium and calories.
 
 **Lentil and Sweet Potato Bowl**
 - ½ cup cooked lentils
@@ -334,9 +334,9 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - 1 teaspoon maple syrup
 - 1 tablespoon pumpkin seeds
 
-*Instructions:* Combine lentils and sweet potatoes over greens. Mix oil, vinegar, and maple syrup for dressing. Drizzle over bowl and top with pumpkin seeds.
+*How to make it:* Layer lentils and sweet potatoes over greens. Mix oil, vinegar, and maple syrup for dressing. Drizzle over bowl and sprinkle with pumpkin seeds.
 
-*Heart benefits:* High in fiber and potassium. Plant-based protein. Sweet potatoes provide beta-carotene.
+*Heart goodness:* High in fiber and potassium. Plant-based protein. Sweet potatoes add beta-carotene.
 
 ### Snack Ideas
 
@@ -346,9 +346,9 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - ½ teaspoon honey
 - Dash of cinnamon
 
-*Instructions:* Combine all ingredients in a bowl.
+*How to make it:* Mix everything in a bowl. Enjoy!
 
-*Heart benefits:* Calcium from yogurt. Omega-3 fatty acids from walnuts.
+*Heart goodness:* Calcium from yogurt. Omega-3 fatty acids from walnuts.
 
 **Herbed White Bean Dip**
 - 1 cup white beans (rinsed well if canned)
@@ -358,95 +358,95 @@ Keep a notebook and pen by your bed. You don't need to share this with anyone - 
 - 2 tablespoons fresh herbs (basil, parsley)
 - Black pepper to taste
 
-*Instructions:* Blend all ingredients until smooth. Serve with vegetable sticks.
+*How to make it:* Blend everything until smooth. Enjoy with veggie sticks.
 
-*Heart benefits:* Plant-based protein and fiber from beans. Garlic has potential cardiovascular benefits.
+*Heart goodness:* Plant-based protein and fiber from beans. Garlic offers potential heart benefits.
 
-## Red Flag Symptoms
+## When to Reach Out for Help
 
-### When to Contact Doctor Immediately
-- **Weight gain**: 2-3 pounds in 24 hours or 5 pounds in a week
-- **Breathing difficulty**: Increased shortness of breath, especially when lying down
-- **Swelling**: New or worsening swelling in ankles, legs, or abdomen
-- **Chest pain**: Any new or worsening chest discomfort
-- **Dizziness/Lightheadedness**: Especially with exertion
-- **Persistent cough**: Particularly with pink or frothy sputum
-- **Extreme fatigue**: Inability to perform basic daily activities
+### Call Your Doctor Right Away If:
+- You gain 2-3 pounds in 24 hours or 5 pounds in a week
+- Breathing becomes more difficult, especially when lying down
+- You notice new or worsening swelling in ankles, legs, or abdomen
+- You feel any new or worsening chest discomfort
+- You experience dizziness or lightheadedness, especially during activity
+- You develop a persistent cough, particularly with pink or frothy mucus
+- You feel extremely tired and can't do basic daily activities
 
-### When to Modify Exercise
-- Heart rate doesn't return to normal after 10 minutes of rest
-- Excessive fatigue lasting more than 2 hours after activity
-- Significant shortness of breath during normal activities
-- Any chest pain, pressure, or discomfort
-- Feeling dizzy or lightheaded during or after exercise
+### Take a Break from Exercise When:
+- Your heart rate doesn't return to normal after 10 minutes of rest
+- You feel unusually tired for more than 2 hours after activity
+- You're significantly short of breath during normal activities
+- You feel any chest pain, pressure, or discomfort
+- You feel dizzy or lightheaded during or after moving
 
-## Resources and Support
+## Helpful Resources
 
-### Medical Resources
+### Trusted Medical Resources
 - American Heart Association: www.heart.org
 - Heart Failure Society of America: www.hfsa.org
 - WomenHeart (National Coalition for Women with Heart Disease): www.womenheart.org
 
-### Mobile Applications
-- **Heart Failure Health Storylines**: Comprehensive tracking
+### Apps That Can Help
+- **Heart Failure Health Storylines**: All-in-one tracking
 - **MyFitnessPal**: Food, water, and exercise tracking
 - **Calm or Headspace**: Stress management and meditation
 
-### Books
+### Helpful Books
 - *Living Well with Heart Failure: The Misnamed, Misunderstood Condition* by Edward K. Kasper and Mary Knudson
 - *American Heart Association Complete Guide to Heart Health* by American Heart Association
 
-### Local Resources
-- Hospital-based cardiac rehabilitation programs
-- Community center fitness classes for those with chronic conditions
+### In Your Community
+- Hospital cardiac rehabilitation programs
+- Community center fitness classes for people with chronic conditions
 - YMCA blood pressure self-monitoring program
 - American Heart Association local chapter events
 
-## Goal Setting and Progress Tracking
+## Celebrating Your Progress
 
-### Short-Term Goals (1-3 months)
-- Establish consistent tracking of weight and fluid intake
-- Develop 3-5 go-to heart-healthy meals
-- Begin regular, gentle exercise routine
-- Connect with support resources (therapist, support group)
+### Short-Term Wins (1-3 months)
+- Establish a simple tracking routine for weight and fluid intake
+- Create 3-5 go-to heart-healthy meals you enjoy
+- Begin a gentle, regular movement routine
+- Connect with support (therapist, support group)
 
-### Medium-Term Goals (3-6 months)
+### Middle-of-the-Journey Goals (3-6 months)
 - Complete a 5K walk
-- Reduce sodium intake to <2000mg daily consistently
-- Establish regular weight training routine
-- Plan and take Florida trip to visit family
+- Keep sodium intake under 2000mg daily most days
+- Establish a regular strength routine you enjoy
+- Take that Florida trip to visit family
 
-### Long-Term Goals (6-12 months)
-- Achieve and maintain recommended weight range
-- Build exercise endurance (45+ minutes of activity without excessive fatigue)
-- Create sustainable heart-healthy lifestyle habits
-- Volunteer with American Heart Association
+### Long-Term Dreams (6-12 months)
+- Find and maintain your comfortable weight range
+- Build stamina (45+ minutes of activity without excessive tiredness)
+- Create sustainable heart-healthy habits that feel natural
+- Perhaps volunteer with American Heart Association
 
-### Tracking Progress
+### Noting Your Progress
 - Monthly measurements (weight, blood pressure, exercise capacity)
-- Journal entries reflecting on emotional well-being
-- Photos to document visible progress
-- Regular check-ins with healthcare team
+- Journal entries about how you're feeling emotionally
+- Photos to see visible changes
+- Regular check-ins with your healthcare team
 
-## Integration With Medical Care
+## Working with Your Medical Team
 
-### Preparation for Medical Appointments
-- Bring tracking logs and summary of trends
-- List of current medications and any side effects
-- Specific questions written down in advance
-- Summary of any symptom changes since last visit
+### Getting Ready for Appointments
+- Bring your tracking logs and notes about patterns
+- List your current medications and any side effects
+- Write down specific questions in advance
+- Summarize any symptom changes since your last visit
 
-### Communication With Healthcare Team
-- Be specific about symptoms and their impact on daily life
-- Ask for clarification of any medical terms not understood
+### Talking with Your Healthcare Team
+- Be specific about symptoms and how they affect your daily life
+- Ask what medical terms mean if they're unclear
 - Request written instructions for any new recommendations
-- Discuss any barriers to following treatment plan
+- Discuss any challenges to following your treatment plan
 
-### Medication Management
+### Managing Medications
 - Use pill organizers or reminder apps
-- Understand the purpose and potential side effects of each medication
-- Never stop medications without medical guidance
-- Develop system for timely prescription refills
+- Understand each medication's purpose and possible side effects
+- Don't stop medications without talking to your doctor first
+- Set up a system for timely prescription refills
 
-## Final Notes
-This wiki is intended as a comprehensive resource but should be used in conjunction with professional medical advice. All recommendations should be reviewed and approved by your healthcare team before implementation.
+## A Final Note
+This guide is meant to help you on your heart health journey, but should always be used alongside your healthcare team's advice. Please review all suggestions with your medical providers before making changes to your care plan.
