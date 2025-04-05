@@ -1,5 +1,8 @@
 # Heart Health Wiki: A Friendly Guide to Taking Care of Your Heart
 
+## Links
+[Meals](meals.md)
+
 ## Having a Tough Day?
 
 ### When Things Feel Overwhelming
